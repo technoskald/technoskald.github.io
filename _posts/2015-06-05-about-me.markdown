@@ -11,14 +11,7 @@ Akhir kata, silahkan enjoy berselancar disini. Bila anda butuh menghubungi saya,
 
 Sukses untuk semua!
 
-<!-- Do not change the code! -->
-<a id="foxyform_embed_link_736690" href="http://www.foxyform.com/">foxyform</a>
-<script type="text/javascript">
-(function(d, t){
-   var g = d.createElement(t),
-       s = d.getElementsByTagName(t)[0];
-   g.src = "http://www.foxyform.com/js.php?id=736690&sec_hash=9ff50ca3a4b&width=350px";
-   s.parentNode.insertBefore(g, s);
-}(document, "script"));
-</script>
-<!-- Do not change the code! -->
+<script type="text/javascript" src="https://b3.caspio.com/scripts/e1.js"></script>
+<script type="text/javascript"language="javascript">
+try{f_cbload("691c10004abb36e6cefc47c0a205&uid=8dc9d7381f9b44e29587f23a362f5ff1","https:");}
+catch(v_e){;}</script>

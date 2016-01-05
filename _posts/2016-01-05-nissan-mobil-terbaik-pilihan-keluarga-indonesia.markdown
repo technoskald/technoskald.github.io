@@ -38,4 +38,6 @@ Selain keunggulan Nissan, mobil terbaik pilihan keluarga Indonesia diatas, Grand
 <li>Sistem ABS (Anti-Lock Braking System) memberikan keamanan dan menghindari roda mengunci saat mengerem mendadak atau mengerem di jalan licin.</li>
 <li>EBD (Electronic Brake-Force Distribution), sensor pemantau bobot keseluruhan kendaraan beserta muatan untuk kemudian menyalurkan daya pengereman yang sesuai untuk deselerasi lebih stabil. Canggih bukan?</li>
 </ul>
-Sebenarnya masih banyak kelebihan dari <a href="https://www.nissan.co.id/">Nissan mobil pilihan keluarga Indonesia</a> Grand Livina ini. Segudang keunggulan dari Grand Livina yang menawarkan kenyamanan, hiburan, dan keamanannya menjadikan Anda tidak punya alasan lagi untuk tidak memilih <u>Nissan, mobil terbaik pilihan keluarga Indonesia</u>.  
+Sebenarnya masih banyak kelebihan dari <a href="https://www.nissan.co.id/">Nissan mobil pilihan keluarga Indonesia</a> Grand Livina ini. Segudang keunggulan dari Grand Livina yang menawarkan kenyamanan, hiburan, dan keamanannya menjadikan Anda tidak punya alasan lagi untuk tidak memilih <u>Nissan, mobil terbaik pilihan keluarga Indonesia</u>.
+
+<a target="_blank" href="http://www.nissan.co.id/"><img src="https://www.nissan-cdn.net/content/dam/Nissan/id/seocontest/image-blogFIX.png.ximg.l_6_m.smart.png"></a>

@@ -1,0 +1,24 @@
+---
+published: true
+title: About Me
+layout: post
+---
+Halo!
+
+Selamat datang di blog saya. Ini adalah salah satu media online saya untuk menulis sesuatu atau posting artikel. Temanya sih umum, tidak ada niche khusus di blog ini, semua artikel bisa saja di post disini. 
+
+Akhir kata, silahkan enjoy berselancar disini. Bila anda butuh menghubungi saya, silahkan tulis di form dibawah ini. 
+
+Sukses untuk semua!
+
+<!-- Do not change the code! -->
+<a id="foxyform_embed_link_736690" href="http://www.foxyform.com/">foxyform</a>
+<script type="text/javascript">
+(function(d, t){
+   var g = d.createElement(t),
+       s = d.getElementsByTagName(t)[0];
+   g.src = "http://www.foxyform.com/js.php?id=736690&sec_hash=9ff50ca3a4b&width=350px";
+   s.parentNode.insertBefore(g, s);
+}(document, "script"));
+</script>
+<!-- Do not change the code! -->

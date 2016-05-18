@@ -5,7 +5,7 @@ layout: post
 ---
 Mobil pemadam kebarakan adalah salah satu mobil yang paling ditunggu apabila terjadi kebakaran apda suatu tempat. Biasanya mobil ini berbentuk truk dengan bagian belakang ada tempat penampungan air untuk memadamkan api. 
 
-<img src="http://m.c.lnkd.licdn.com/mpr/mpr/AAEAAQAAAAAAAAIrAAAAJDRhZTdhZmNiLTkxNTctNGRlYi1iOTRjLWNlOGI4ZDBjY2I0ZA.jpg />
+<img src="http://m.c.lnkd.licdn.com/mpr/mpr/AAEAAQAAAAAAAAIrAAAAJDRhZTdhZmNiLTkxNTctNGRlYi1iOTRjLWNlOGI4ZDBjY2I0ZA.jpg" />
 
 Dalam kondisi nyata, mobil pemadam belum pernah menggunakan mobil pick up sebagai armadanya. Walaupun <a href="http://daihatsu.co.id/product/granmax-pu">harga mobil pick up murah</a> dan terjangkau, tapi ini tidak memenuhi syarat dan kebutuhan dalam operasi pemadaman kebakaran. 
 

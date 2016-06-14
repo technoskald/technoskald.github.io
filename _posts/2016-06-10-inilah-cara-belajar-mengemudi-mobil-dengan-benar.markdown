@@ -3,9 +3,9 @@ published: true
 title: Inilah Cara Belajar Mengemudi Mobil Dengan Benar
 layout: post
 ---
-Di era modern seperti sekarang ini, memiliki mobil adalah hal biasa bagi setiap keluarga. Mobil dipakai tidak hanya untuk memudahkan transportasi, tapi dipakai juga untuk berbisnis berjualan makanan di pinggir jalan, antar jemput, atau menyewakannya. Tipe mobil yang dipakai kebanyakan adalah mobil keluarga fitur terbaik semisal mobil Daihatsu. 
+Di era modern seperti sekarang ini, memiliki mobil adalah hal biasa bagi setiap keluarga. Mobil dipakai tidak hanya untuk memudahkan transportasi, tapi dipakai juga untuk berbisnis berjualan makanan di pinggir jalan, antar jemput, atau menyewakannya. Tipe mobil yang dipakai kebanyakan adalah <a href="http://www.daihatsu.co.id/">mobil keluarga fitur terbaik</a> semisal mobil Daihatsu. 
 
-<a width="100%" href="http://www.makingdifferent.com/wp-content/uploads/2014/10/driving-car.jpg" />
+<img width="100%" src="http://www.makingdifferent.com/wp-content/uploads/2014/10/driving-car.jpg" />
 
 Anda harus <a href="http://bnetblogger.weebly.com/blog/siapkan-semuanya-saat-akan-belajar-mengemudi-mobil">siapkan keperluan untuk belajar mobil</a> sedini mungkin. Bukan hanya keinginan yang menggebu-gebu, mempelajari hal-hal spesifik tentang mobil keluarga atau pick up terbaik juga penting dilakukan, termasuk mengecek harga mobil. 
 

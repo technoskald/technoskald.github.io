@@ -5,7 +5,7 @@ layout: post
 ---
 Begitu menarik untuk petani lantaran pasar selalu. berkembang Pemerintah juga dengan cara agresif memberi support lewat riset serta kampanye unggul benih lele. Hingga beragam pusat nampak dari budidaya ikan lele di beberapa daerah. Untuk memperoleh faedah optimal, budidaya ikan lele tak dapat dikerjakan cuma aktivitas subsisten saja. 
 
-<a href="http://technoskald.github.io/bau/badan/2016/08/09/cara-menghilangkan-bau-badan.html"><img src="http://4.bp.blogspot.com/-oTQOdS66QXc/VhR8yJQ4C4I/AAAAAAAAJ8M/p3ToYGQNN9Q/s1600/ikan-lele.jpeg"></a>
+<img width="100%" src="http://4.bp.blogspot.com/-oTQOdS66QXc/VhR8yJQ4C4I/AAAAAAAAJ8M/p3ToYGQNN9Q/s1600/ikan-lele.jpeg">
 
 Lele bisa hidup dalam kepadatan tebar tinggi serta rasio pada perkembangan yang baik. Serta nyatanya lele juga memiliki segudang faedah ikan lele untuk kesehatan badan kita. Untuk beberapa penggila pancing ikan resep umpan mancing ikan lele yang bagus dapat juga jadi penentu hasil ikan pancingan simak : resep umpan mancing ikan lele sebagai rujukan anda. 
 

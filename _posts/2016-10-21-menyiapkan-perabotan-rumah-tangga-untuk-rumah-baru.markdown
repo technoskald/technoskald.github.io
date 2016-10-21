@@ -2,6 +2,7 @@
 published: true
 title: Menyiapkan Perabotan Rumah Tangga untuk Rumah Baru
 layout: post
+permalink: perabotan-rumah-baru
 ---
 Menikah memang menyenangkan. Namun, ternyata menikah juga meninggalkan sebuah perjuangan yang harus dilakukan. Mulai dari harus mencari calonnya, hingga menyiapkan semua hal yang akan dijalani setelah akad dan resepsi selesai. Cukup resepsi yang sederhana saja, sisa uangnya lebih baik ditabung atau dibelikan sesuatu yang lebih berguna. Tidak perlu gengsi karena pernikahan yang sederhana. Karena dalam sebuah pernikahan cukup kata SAH yang menjadi pembeda antara status menikah dan belum menikah.
 

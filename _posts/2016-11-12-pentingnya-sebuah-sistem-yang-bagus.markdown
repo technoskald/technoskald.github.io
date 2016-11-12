@@ -1,0 +1,15 @@
+---
+published: true
+title: Pentingnya Sebuah Sistem yang Bagus
+layout: post
+permalink: sistem-yang-bagus
+---
+Zaman ini semuanya serba instan dan harus tertata rapi. Jika tidak, kamu akan kesulitan mengerjakannya. Contohnya saja jika dulu sebuah pencatatan penjualan masih ditulis manual, kini sudah banyak yang menggunakan software. Ya meskipun kita tidak menutup mata dari banyaknya orang yang melakukan semua pencatatan transaksi secara manual. Hal itu mungkin karena memang skala usahanya masih bisa ditangani oleh dirinya sendiri. Sangat berbeda jika skala usahanya sudah besar, akan sangat merepotkan jika pencatatan dilakukan secara manual. Selain itu sangat besar kemungkinan untuk terjadi kesalahan dalam penghitungan. Jika menggunakan software pencatatan transaksi, saya yakin hitungan tidak akan mungkin salah.
+
+<img src="http://www.finansialku.com/wp-content/uploads/2013/05/mencatat-pengeluaran.jpg">
+
+Sebenarnya software seperti itu harganya murah atau mahal sih? Kalau dibilang murah, tidak juga. Karena memang ada pembuatan software yang sesuai dengan permintaan klien, harganya cukup mahal. Namun, jika permintaannya sederhana, maka software akan dibandrol dengan harga murah. Apa saja sih yang biasanya membutuhkan software pencatatan transaksi? Kamu pernah belanja di Indomaret atau Alfamart? Mereka menggunakan software untuk pencatatan tiap transaksinya loh. Bayangkan saja jika mereka harus mencatatnya secara manual. Mungkin banyak sekali pegawai yang dibutuhkan. Apalagi jika pembelinya sedang ramai dan antre banyak. Kasihan pegawainya, kelelahan hanya untuk urusan menghitung yang sebenarnya sangat-sangat bisa ditangani oleh software pencatatan dengan mudah.
+
+Selain Indomaret dan Alfamart, kamu juga bisa menemukan software pencatatan ini pada masakan padang. Banyak sekali restorang padang yang menggunakan software restoran masakan padang. Tentu saja hal ini agar semua transaksi yang terjadi bisa tercatat dengan baik. Selain itu, software restoran tersebut memiliki banyak fitur yang memudahkan pengelola masakan padang untuk mengawasi cash flow dari restorannya.
+
+Dari penjelasan di atas, kita bisa menarik kesimpulan mengenai pentingnya sebuah sistem yang bagus. Dengan sistem yang bagus, waktu bisa dihemat hingga 50% dan bisa menghemat pengeluaran. Tidak percaya? Coba bayangkan jika seorang pemiliki restoran padang tidak punya <a href="http://omegateknologi.com/restaurant-system/">software restoran masakan padang</a>, maka dia akan butuh setidaknya satu orang yang mengurusi pencatatan transaksi restoran padang miliknya. Dan dia harus menggajinya tiap bulan. Sangat berbeda ketika dia membeli software restoran masakan padang, dia hanya cukup bayar sekali. Selanjutnya dia tidak perlu bayar lagi tiap bulannya. Selain itu, pencatatan yang dilakukan oleh software restoran padang lebih cepat jika dibandingkan pencatatan transaksi secara manual yang dilakukan oleh seorang pegawai.

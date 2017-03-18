@@ -22,7 +22,7 @@ Anda juga bisa mencoba menggunakan krim pembersih wajah. Bila kulit wajah anda t
 
 Banyak sabun dan krim facial yang dibuat untuk kulit sensitif. Sabun jenis ini tidak mengandung parfum atau pewarna. Sabun untuk kulit sensitif juga memiliki pH seimbang, sesuai dengan kebutuhan kulit. 
 
-Bila anda mencari tempat jual sabun online, anda bisa memulai mencarinya di situs JD.ID.
+Bila anda mencari tempat <a href="https://www.jd.id/category/jual-sabun-mandi-875061741.html" target="_blank">jual sabun</a> online, anda bisa memulai mencarinya di situs JD.ID.
 
 Beruntunglah bagi anda yang memiliki kulit normal, tidak terlalu berminyak dan tidak terlalu kering. Namun demikian, ada beberapa kriteria sabun yang harus dijauhi, termasuk bagi pemilik kulit normal, diantaranya:
 <ul>
@@ -31,4 +31,5 @@ Beruntunglah bagi anda yang memiliki kulit normal, tidak terlalu berminyak dan t
 <li>Sabun berharga murah.</li>
 <li>Sabun yang diperuntukkan untuk kondisi kulit tertentu yang tidak sesuai dengan kondisi kulit anda.</li>
 </ul>
-JD.ID adalah salah satu tempat jual sabun pria dan wanita online. Setelah mengetahui jenis kulit anda dan sabun mana yang cocok, anda bisa berbelanja sabun dengan tenang dan tidak takut akan resiko iritasi kulit karena sabun yang tidak sesuai.
+
+JD.ID adalah salah satu tempat <a href="https://www.jd.id/category/jual-sabun-mandi-875061741.html" target="_blank">jual sabun pria</a> dan wanita online. Setelah mengetahui jenis kulit anda dan sabun mana yang cocok, anda bisa berbelanja sabun dengan tenang dan tidak takut akan resiko iritasi kulit karena sabun yang tidak sesuai.

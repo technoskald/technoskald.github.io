@@ -13,7 +13,7 @@ List dibawah ini bisa menjadi inspirasi anda untuk memilih mana masker wajah yan
 
 <img src="https://3.bp.blogspot.com/-GkdxlIrAXpk/WZXPWZDq8BI/AAAAAAAACnw/HptPDKgMGKIzneqobAl3J6OvrqGn7J-OwCLcBGAs/s1600/masker%2Bmagnet.jpg" />
 
-Ini adalah masker unik yang diproduksi oleh Dr. Brandt Skincare. Sebagaimana dikutip di laman <b><a href="https://miignon.com/">miignon.com</b></a>, masker bubuk magnet ini bertekstur seperti lumpur, karena memang diambil dari lumpur di Laut Mati. Fungsi utamanya untuk mengangkat sel kulit mati dan kotoran di wajah, serta untuk peremajaan kulit. Testimonial pemakainya, kulit mereka jadi terlihat cerah, bersinar, lembab, dan lebih kencang. 
+Ini adalah masker unik yang diproduksi oleh Dr. Brandt Skincare. Sebagaimana dikutip di laman <strong><a href="https://miignon.com/">miignon.com</a></strong>, masker bubuk magnet ini bertekstur seperti lumpur, karena memang diambil dari lumpur di Laut Mati. Fungsi utamanya untuk mengangkat sel kulit mati dan kotoran di wajah, serta untuk peremajaan kulit. Testimonial pemakainya, kulit mereka jadi terlihat cerah, bersinar, lembab, dan lebih kencang. 
 
 <strong>2. Masker Yogurt</strong>
 

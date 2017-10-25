@@ -1,0 +1,14 @@
+---
+published: true
+title: ASI Berkualitas Untuk Meningkatkan Berat Badan Bayi
+layout: post
+---
+Ketika lahir berat badan bayi haru menjadi perhatian orang tua karena itu bisa menjadi tolak ukur untuk melihat petumbuhan selanjutnya. Apabila berat badannya rendah tentu harus ada upaya untuk bisa menaikkan berat badan bayi agar mendapatkan berat badan ideal bayi. Berat badan bayi harus menjadi perhatian utama bagi apara orang tua agar bisa mengetahui sejauh mana pertumbuhan bayi. Belum banyak orang yang mengetahui bahwa berat badan bayi sebenarnya akan menyusut beberapa hari setelah lahir. Hal ini disebabkan oleh banyaknya cairan yang hilang ketika dilahirkan dan juga asupan nutrisi yang belum terpenuhi karena di awal-awal kelahiran ASI belum maksimal. Oleh sebab itulah, para orang tua terutama ibu harus paham bahwa berat badan bayi tidak akan meningkat dengan cepat. Meskipun demikian andda tidak perlu cemas, karena pada bayi yang normal berat badannya akan kembali mengalamin peningkatan setelah 14 hari seiring dengan peningkatan produksi ASI. Sang Ibu juga harus mengkonsumsi <a href="https://www.guesehat.com/makanan-penambah-daya-tahan-tubuh" target="_blank">makanan sehat untuk Ibu menyusui</a> yang terdapat setiap gizi sebagai kebutuhan Ibu yang baru saja melahirkan.
+
+<img src="https://cdn.pixabay.com/photo/2017/08/07/15/52/mother-2605133_640.jpg" />
+
+Ketika seorang ibu membayi bayinya untuk kontrol ke dokter ataupun bidan, tahapan pertama yang akan dilakukan adalah menimbang berat badannya untuk mengetahui sejauh mana pertumbuhan bayi. Biasanya berat badan bayi akan mengalami peningkatan sekitar 450-900 gram setiap bulannya di beberapa bulan pertama. Anda bisa mengetahui pertumbuhan berat badan normal bayi melalui grafik Kartu Menuju Sehat (KMS). Adapun pertumbuhan berat normal bayi satu tahun pertama adalah : beberapa hari setelah dilahirkan be rat badan bayi mengalami penyusutan sekitar 5-10 persen dan akan kembali meningkat setelah 14 sampai 21 hari kemudian. 
+
+Kenaikan berat badan bayi mengalami peningkatan yang signifikan terjadi pada usia 4-6 bulan karena bisa mencapai 2 kali lipat dibanding saat dilahirkan, bahkan bisa mencapai 3 kali lipat setelah berusia 1 tahun. Selain berat badan, hal lain yang juga harus diperhatikan adalah tinggi badan dan juga lingkar kepalanya untuk mengetahui seberapa jauh pertumbuhannya.
+
+Salah satu upaya yang bisa dilakukan untuk meningkatkan berat badan bayi stelah diketahui berat badan bayi anda rendah atau kurang adalah dengan memberikan ASI yang berkualitas. Artinya si ibu juga harus memperhatikan asupan nutrisi bagi tubuhnya agar ASI yang dihasilkan mengandung cukup nutrisi, sehingga akan didapat berat badan ideal bayi. Selain bayi yang harus memiliki badan ideal, sang Ibu juga harus melakukan <a href="https://www.guesehat.com/mengenal-4-macam-diet" target="_blank">program diet</a> untuk mendapatkan tubuh yang ideal.

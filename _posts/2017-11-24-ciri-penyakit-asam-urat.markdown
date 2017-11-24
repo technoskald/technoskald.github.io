@@ -5,7 +5,7 @@ layout: post
 ---
 Salah satu permasalahan penyakit yang tentunya harus mampu segera kita atas yaitu penyakit asam urat. Penyakit ini diderita oleh penderitanya dengan bebera tanda yang terjadi sehingga akan membuat para penderita penyakit ini akan merasakan kesakitan, kesemutan bahkan terdapat gejala yang lainnya. 
 
-Penyakit asam urat adalah suatu kondisi dari penyakit yang dikareankan konsumsi zat purin yang berlebihan serta purin diolah tubuh menjadi penyakit asam urat serta jika kadar asam urat tersebut berlebuhan, maka ginjal tidak akan mampu untuk dapat mengeluarkannya sehingga kristal asam urat akan menumpuk di dalam persendian. <b<Obat asam urat</b> yang sangat manjur tentunya hanya obat alami asam urat yang berada di goApotik. Ada pun ciri dari penyakit asam urat secara umum yang dirasakan oleh penderitanya yaitu sebagai berikut ini. 
+Penyakit asam urat adalah suatu kondisi dari penyakit yang dikareankan konsumsi zat purin yang berlebihan serta purin diolah tubuh menjadi penyakit asam urat serta jika kadar asam urat tersebut berlebuhan, maka ginjal tidak akan mampu untuk dapat mengeluarkannya sehingga kristal asam urat akan menumpuk di dalam persendian. <b>Obat asam urat</b> yang sangat manjur tentunya hanya obat alami asam urat yang berada di goApotik. Ada pun ciri dari penyakit asam urat secara umum yang dirasakan oleh penderitanya yaitu sebagai berikut ini. 
 
 <img src="https://3.bp.blogspot.com/-jJJD7Y4Imqs/Whgta4cioVI/AAAAAAAAFjM/bQVUnj74HF0vslyFfC_QEkwdH2jhrhpnwCLcBGAs/s1600/pill-1884775_640.jpg" />
 
